@@ -1,4 +1,4 @@
-### Hi guys UwU
+### Hi guys :D
 
 <!--
 **Lekoshi/Lekoshi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
